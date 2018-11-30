@@ -1,4 +1,4 @@
-# I don't know the movie but I only know the lines
+# I don't know which movie is, but I know the lines.
 
 From Website:
 
